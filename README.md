@@ -1,1 +1,0 @@
-# kabul-uygulamas-v3
